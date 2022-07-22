@@ -1,6 +1,6 @@
 ![A Future Data Scientist .](https://pbs.twimg.com/profile_banners/1529474600085897217/1658513113/600x200)
 
-### Hi there 👋, I am Muhammad Sajjad Ul ISlam .
+### Hi there 👋, I am Muhammad Sajjad Ul Islam .
 #### A Future Data Scientist .
 
 
